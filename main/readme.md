@@ -1,1 +1,0 @@
-# antena digital & parabola
